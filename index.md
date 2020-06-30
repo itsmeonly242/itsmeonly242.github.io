@@ -8,3 +8,7 @@ Der gute alte Zarathustra, mag keine Menschen, ist gerne auf seinem Berg mit sei
 * Übermensch
 * verabscheut Nächstenliebe
 * Interessiert sich für Seiltänzer
+
+## Motto
+
+> Das Leben ist ein Born der Lust; aber wo das Gesindel mittrinkt, da sind alle Brunnen vergiftet.
