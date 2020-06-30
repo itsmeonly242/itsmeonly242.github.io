@@ -12,3 +12,5 @@ Der gute alte Zarathustra, mag keine Menschen, ist gerne auf seinem Berg mit sei
 ## Motto
 
 > Das Leben ist ein Born der Lust; aber wo das Gesindel mittrinkt, da sind alle Brunnen vergiftet.
+
+<img src=https://upload.wikimedia.org/wikipedia/commons/2/23/Nietzsche1882.jpg/>
