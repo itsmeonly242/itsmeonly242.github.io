@@ -7,7 +7,7 @@ Der gute alte Zarathustra, mag keine Menschen, ist gerne auf seinem Berg mit sei
 * Misanthrop
 * Übermensch
 * verabscheut Nächstenliebe
-* Interessiert sich für Seiltänzer
+* interessiert sich für Seiltänzer
 
 ## Motto
 
